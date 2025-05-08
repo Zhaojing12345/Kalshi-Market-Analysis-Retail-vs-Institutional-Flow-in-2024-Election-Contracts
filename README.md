@@ -1,1 +1,1 @@
-# Kalshi Market Analysis: Retail vs Institutional Flow in 2024 Election Contracts
+## Kalshi Market Analysis: Retail vs Institutional Trading Behaviors in 2024 U.S. Election Contracts
